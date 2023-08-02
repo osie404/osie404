@@ -11,9 +11,9 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=osie404" alt="osie404" /></a> </p>
 
-- 📫 How to reach me **k190213@nu.edu.pk**
+- 📫 How to reach me **k190213@nu.edu.pk** OR **ahmedowais204@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/muhammad-owais-ahmed-45763a247/](https://www.linkedin.com/in/muhammad-owais-ahmed-45763a247/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/muhammad-owais-ahmed-45763a247/](https://www.linkedin.com/in/muhammadowaisahmed/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

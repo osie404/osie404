@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **k190213@nu.edu.pk** OR **ahmedowais204@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/muhammad-owais-ahmed-45763a247/](https://www.linkedin.com/in/muhammadowaisahmed/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/muhammadowaisahmed/](https://www.linkedin.com/in/muhammadowaisahmed/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
